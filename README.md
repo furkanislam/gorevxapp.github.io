@@ -37,5 +37,4 @@ These terms and conditions are effective as of 2025-03-14
 Contact Us
 If you have any questions or suggestions about the Terms and Conditions, please do not hesitate to contact the Service Provider at islamfurkan53@gmail.com.
 
-![image](https://github.com/user-attachments/assets/f8fb4eea-8b7d-46ad-9e29-9caaf9722a57)
 
